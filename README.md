@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @shaniawu12
+- 👋 Hi, I’m @shania.
 - 👀 I’m interested in KPop.
 - 🌱 I’m currently learning typing...
 
