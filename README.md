@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shaniawu12
 - 👀 I’m interested in KPop.
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning typing...
 
 
 <!---
