@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @shania.
-- 👀 I’m interested in KPop.
-- 🌱 I’m currently learning typing...
+- 🌱 I’m currently learning coding..
 
 
 <!---
